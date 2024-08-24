@@ -1,7 +1,7 @@
-#  💙𝗟𝗨𝗖𝗬 𝗠𝗨𝗦𝗜𝗖 𝗕𝗢𝗧💙 
+#  💙˹ ᴬᴺᴺᴵᴱ ✘ ᴍᴜsɪᴄ˼ ♪™➜💙 
 
  <p align="center">
-  <img src="https://telegra.ph/file/1aa05b6f356b259e7a0d6.jpg">
+  <img src="https://graph.org/file/eabfb1087a5508dbbb218.jpg">
 </p>
 
 
@@ -16,7 +16,7 @@
 
 
 ### Support & Updates 🎑
-<a href="https://t.me/LOCYS"><img src="https://img.shields.io/badge/Join-Group%20Support-blue.svg?style=for-the-badge&logo=Telegram"></a> <a href="https://t.me/LOCYS"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
-### [[𝗟𝘂𝗰𝘆 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿](https://t.me/Mafiarishabh)]
+<a href="https://t.me/GOKUxEDITION"><img src="https://img.shields.io/badge/Join-Group%20Support-blue.svg?style=for-the-badge&logo=Telegram"></a> <a href="https://t.me/LOCYS"><img src="https://img.shields.io/badge/Join-Updates%20Channel-blue.svg?style=for-the-badge&logo=Telegram"></a>
+### [[𝗟𝘂𝗰𝘆 𝗱𝗲𝘃𝗲𝗹𝗼𝗽𝗲𝗿](https://t.me/GOKUxEDITION)]
 ### THANKS FOR HEXOROP VERY GOOD GUY 
 ### [[HEXOROP](https://github.com/HEXOROP)]
